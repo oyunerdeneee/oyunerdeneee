@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @oyunerdene
+- 👀 I’m interested in reading harry potter and miss peregrine' home peculiar children's book
+- 🌱 I’m currently learning engineering
+- 📫 How to reach me 
+-you can send mail to s21c057b@nmct.edu.mn and fb: Oyun Erdene ig: velverosa_erdene
